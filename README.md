@@ -6,6 +6,10 @@ MtF / INFP / OIer
 
 目前在阿卡林省读高一，是一个很菜的OIer（枯
 
-![](https://cfrating.ihcr.top/?user=rainbowbird)
+## 联系我
 
-![](https://images.cnblogs.com/cnblogs_com/luoling8192/1758973/t_200606042337QQ%E5%9B%BE%E7%89%8720200523173418.jpg)
+QQ: 1284114089
+
+[我的博客](https://www.cnblogs.com/luoling8192/)
+
+[rbxin2003@outlook.com](mailto:rbxin2003@outlook.com)
