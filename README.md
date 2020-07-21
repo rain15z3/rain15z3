@@ -13,3 +13,5 @@ QQ: 1284114089
 [我的博客](https://www.cnblogs.com/luoling8192/)
 
 [rbxin2003@outlook.com](mailto:rbxin2003@outlook.com)
+
+![Luoling's github stats](https://github-readme-stats.vercel.app/api?username=rain15z3&show_icons=true)
