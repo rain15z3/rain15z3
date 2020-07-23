@@ -6,6 +6,9 @@ MtF / INFP / OIer
 
 目前在阿卡林省读高一，是一个很菜的OIer（枯
 
+![](http://luogu.app.luoling8192.top:98/gen?uid=312639&query=rating)
+![](http://luogu.app.luoling8192.top:98/gen?uid=312639&query=ac)
+
 ## 联系我
 
 QQ: 1284114089
