@@ -14,7 +14,7 @@ MtF / INFP / OIer
 
 QQ: 1284114089
 
-[我的博客](https://www.cnblogs.com/luoling8192/)
+[我的博客](https://blog.luoling8192.top)
 
 [rbxin2003@outlook.com](mailto:rbxin2003@outlook.com)
 
